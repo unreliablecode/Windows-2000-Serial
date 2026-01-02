@@ -4,8 +4,7 @@ If you're looking for valid Windows 2000 Professional CD keys for various purpos
 
 ## CD Keys
 
-1. **G74HG-XXQTJ-RTX64-QKP3F-HKHXP**
-
+1.**RM233-2PRQQ-FR4RH-JP89H-46QYB** *(Retail)*
 2. **F6PGG-4YYDJ-3FF3T-R328P-3BXTG**
 
 3. **VXKC4-2B3YF-W9MFK-QB3DB-9Y7MB**
@@ -26,7 +25,7 @@ If you're looking for valid Windows 2000 Professional CD keys for various purpos
 
 11. **DDTPV-TXMX7-BBGJ9-WGY8K-B9GHM**
 
-12. **RM233-2PRQQ-FR4RH-JP89H-46QYB** *(Retail)*
+12. **G74HG-XXQTJ-RTX64-QKP3F-HKHXP**
 
 13. **F63KX-K7WB2-J2Q4W-DYQCY-QTF9J**
 
